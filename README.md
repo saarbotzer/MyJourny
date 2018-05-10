@@ -1,1 +1,1 @@
-# MyJourny
+# MyJourney
